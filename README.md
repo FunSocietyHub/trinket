@@ -1,1 +1,1 @@
-# trinket
+# Trinket Esport Fantasy
